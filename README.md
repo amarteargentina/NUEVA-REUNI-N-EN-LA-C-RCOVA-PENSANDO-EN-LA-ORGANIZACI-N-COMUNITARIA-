@@ -1,1 +1,1 @@
-# NUEVA-REUNI-N-EN-LA-C-RCOVA-PENSANDO-EN-LA-ORGANIZACI-N-COMUNITARIA-
+Transformando vidas y comunidades en La Cárcova con Amarte Argentina. #CompromisoSocial
